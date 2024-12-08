@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI and UI designing.
 - 🌱 I’m currently learning Software Engineering.
 - 💞️ I’m looking to collaborate on New projects in web development.
-- 📫 How to reach me - You can reach me from my Instagram account - adea_wis
+- 📫 How to reach me - Email me to akshidealwis12@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I know some korean and japanese language. I am into play musical instruments and i like to sing too.
 
