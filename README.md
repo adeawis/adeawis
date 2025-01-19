@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @adeawis
+- 👋 Hi, I’m Akshi De Alwis
 - 👀 I’m interested in AI and UI designing.
 - 🌱 I’m currently learning Software Engineering.
 - 💞️ I’m looking to collaborate on New projects in web development.
